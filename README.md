@@ -57,7 +57,7 @@ An AI-powered platform that transforms traditional restaurant menus into interac
 
 ## 📧 Contact
 
-For questions or collaboration, reach out at: **your-email@example.com**
+For questions or collaboration, reach out at: **aadityaghogale01@gmail.com** or **sagardubey353@gmail.com**
 
 ---
 
