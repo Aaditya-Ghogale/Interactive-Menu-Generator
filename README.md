@@ -61,7 +61,7 @@ For questions or collaboration, reach out at: **aadityaghogale01@gmail.com** or 
 
 ---
 
-**© 2025 Team MenuPlatform**
+**© 2025 Team Digi-Menu**
 
 
 
